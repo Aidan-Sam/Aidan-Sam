@@ -1,5 +1,5 @@
 {Indonesia🇲🇨}
-- =>Hi, saya @Aidan-Sam (Sam is my real name😅) 
+- =>Hi, saya @Stefan-Aidan (Sam is my real name😅) 
 - =>saya fokus mempelajari **NLP untuk pengembangan AI**.
 - =>fast information:saya masih pelajar sekolah menengah atas. 
 - =>Fun fact: saya sebenarnya punya akun GitHub lama yang bernama "Stefan Sam" tapi saya lupa sandi yang membuat saya mencoba membuat ulang sandi saya tapi tetap saja tidak bisa. dan ahkirnya saya memutuskan untuk membuat akun baru ini, dan nama Aidan yang tersematkan itu nama salah satu karakter yang saya suka di webtoon! 
